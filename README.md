@@ -17,5 +17,5 @@ Love interacting with the community, sharing knowledge, and learning new things.
 
 - 👨 I’m Le Minh Mạnh.
 - 😄 Pronouns: he/him/his.
-- 📧 How to reach me: manhle546@@gmail.com
+- 📧 How to reach me: manhle546@gmail.com
 - 💬 Telegram: @minhmanh443
